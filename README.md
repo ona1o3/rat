@@ -1,1 +1,1 @@
-# rat Кондратюк Сергей 2-И
+for university 
